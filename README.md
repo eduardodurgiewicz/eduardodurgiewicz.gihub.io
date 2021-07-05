@@ -1,1 +1,1 @@
-# https://eduardodurgiewicz.github.io/
+# https://eduardodurgiewicz.gihub.io/
